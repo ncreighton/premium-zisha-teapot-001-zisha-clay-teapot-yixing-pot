@@ -1,0 +1,2 @@
+# premium-zisha-teapot-001-zisha-clay-teapot-yixing-pot
+You've admired those exquisite Yixing teapots, but thought crafting one yourself was reserved for master artisans in China. That stops today.  This workshop breaks down the centuries-old secrets of zisha clay into simple, at-home steps. No wheel, no kiln required - just your hands and a few basic tools. You'll go from zero to shaping your own funct
